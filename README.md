@@ -1,0 +1,4 @@
+-  Hi, I’m Rinnymini
+-  I’m interested in: your mom
+- discord:  silly_gooserinnymini
+-  im weird
